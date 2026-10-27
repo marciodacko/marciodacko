@@ -29,4 +29,4 @@ Most of my work is client work and lives in private repositories, which is why t
 ### Let's work together
 
 Open to freelance and contract work with teams in the US, Canada and Europe.
-Reach me on [LinkedIn](https://www.linkedin.com/in/marcio-dacko-6ab02b210).
+Reach me on [LinkedIn](https://www.linkedin.com/in/marciodacko).
